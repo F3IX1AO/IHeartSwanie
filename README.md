@@ -4,16 +4,6 @@
 
 
 
- 
-
-
-
-
-![Untitled66_20240616182211](https://github.com/user-attachments/assets/be1c1506-ea6c-4a76-a2e1-a2c5373b6b4d)
-
-
-
-
 
 
 
